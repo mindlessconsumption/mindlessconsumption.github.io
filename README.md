@@ -1,1 +1,0 @@
-# mindlessconsumption.github.io
